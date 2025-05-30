@@ -2,7 +2,7 @@
 - 👀 I’m interested in electronics and hardware programming.
 - 🌱 I’m currently learning how to create servers.
 - 💞️ I’m looking to collaborate on any type of project to excel my learning journey.
-- 📫 How to reach me : alexa.razo.a10@gmail.com
+- 📫 How to reach me : 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: 🐱‍👤
 
